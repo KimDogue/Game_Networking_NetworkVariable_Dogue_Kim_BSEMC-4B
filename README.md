@@ -1,2 +1,4 @@
-Uploading bandicam 2026-08-27 22-56-55-426.mp4…
+https://github.com/user-attachments/assets/cb3e5d49-f85b-4260-bfc0-8c9cd0ff426f
+
+
 
