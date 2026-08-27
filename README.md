@@ -1,4 +1,2 @@
-
-
 Uploading bandicam 2026-08-27 22-56-55-426.mp4…
 
